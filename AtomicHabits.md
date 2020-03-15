@@ -1,0 +1,20 @@
+- [ ] Chapter 1: The Surprising Power of Tiny Habits
+- [ ] Chapter 2: How Your Habits Shape Your Identity (and Vice Versa)
+- [ ] Chapter 3: How to Build Better Habits in 4 Simple Steps
+- [ ] Chapter 4: The Man Who Didn’t Look Right
+- [ ] Chapter 5: The Best Way to Start a New Habit
+- [ ] Chapter 6: Motivation is Overrated; Environment Often Matters More
+- [ ] Chapter 7: The Secret to Self-Control
+- [ ] Chapter 8: How to Make a Habit Irresistible
+- [ ] Chapter 9: The Role of Family and Friends in Shaping Your Habits
+- [ ] Chapter 10: How to Find and Fix The Cause of Your Bad Habits
+- [ ] Chapter 11: Walk Slowly, But Never Backward
+- [ ] Chapter 12: The Law of Least Effort
+- [ ] Chapter 13: How to Stop Procrastinating by Using the Two-Minute Rule
+- [ ] Chapter 14: How to Make Good Habits Inevitable and Bad Habits Impossible
+- [ ] Chapter 15: The Cardinal Rule of Behavior Change
+- [ ] Chapter 16: How to Stick with Good Habits Every Day
+- [ ] Chapter 17: How an Accountability Partner Changes Everything
+- [ ] Chapter 18: The Truth About Talent (When Genes Matter and When They Don’t)
+- [ ] Chapter 19: The Goldilocks Rule—How to Stay Motivated in Life and Work &nbsp;<span style=\"font-weight: 400;\"> &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</span>
+- [ ] Chapter 20: The Downside of Creating Good Habits"
